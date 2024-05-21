@@ -1,1 +1,1 @@
-The cottage industry system, also known as the putting-out system, was prevalent in Europe during the 18th century, involving decentralized production by rural households for urban markets.
+The Enclosure Acts in Britain during the 18th century led to the privatization of common lands, forcing many peasants off the land and into wage labor in burgeoning industries.
