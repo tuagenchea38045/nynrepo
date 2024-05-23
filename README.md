@@ -1,1 +1,1 @@
-The War of Spanish Succession, fought from 1701 to 1714, disrupted global trade and led to territorial realignments in Europe and the Americas, impacting economic stability and growth.
+The Industrial Revolution, which began in Britain in the late 18th century and spread to other parts of Europe and the world in the 19th century, transformed economies through mechanized production and urbanization.
