@@ -1,1 +1,1 @@
-The Industrial Revolution, which began in Britain in the late 18th century and spread to other parts of Europe and the world in the 19th century, transformed economies through mechanized production and urbanization.
+The rise of economic liberalism in the 18th century, championed by thinkers like Adam Smith, advocated for free markets, limited government intervention, and individual liberty, shaping modern economic theory and policy.
