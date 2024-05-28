@@ -1,1 +1,1 @@
-The rise of economic liberalism in the 18th century, championed by thinkers like Adam Smith, advocated for free markets, limited government intervention, and individual liberty, shaping modern economic theory and policy.
+The rise of mercantilism in the 18th century led to increased government intervention in the economy, including tariffs, subsidies, and trade monopolies aimed at promoting national wealth and power.
