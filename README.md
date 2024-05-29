@@ -1,1 +1,1 @@
-The rise of mercantilism in the 18th century led to increased government intervention in the economy, including tariffs, subsidies, and trade monopolies aimed at promoting national wealth and power.
+The rise of global trade networks in the 17th century facilitated the exchange of goods, ideas, and cultures between Europe, Asia, Africa, and the Americas, ushering in the era of globalization.
