@@ -1,1 +1,1 @@
-The rise of global trade networks in the 17th century facilitated the exchange of goods, ideas, and cultures between Europe, Asia, Africa, and the Americas, ushering in the era of globalization.
+The War of Spanish Succession, fought from 1701 to 1714, disrupted global trade and led to territorial realignments in Europe and the Americas, impacting economic stability and growth.
