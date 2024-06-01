@@ -1,1 +1,1 @@
-The mechanization of agriculture in the 19th century, including the invention of the reaper and other farm machinery, increased agricultural productivity and led to the consolidation of landholdings.
+The 17th century witnessed significant innovations in finance and commerce, including the development of bills of exchange, double-entry bookkeeping, and insurance contracts.
