@@ -1,1 +1,1 @@
-The 17th century witnessed significant innovations in finance and commerce, including the development of bills of exchange, double-entry bookkeeping, and insurance contracts.
+The rise of multinational corporations in the 19th century, such as Standard Oil, Carnegie Steel, and the British East India Company, wielded significant economic and political influence on a global scale.
