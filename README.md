@@ -1,1 +1,1 @@
-The rise of multinational corporations in the 19th century, such as Standard Oil, Carnegie Steel, and the British East India Company, wielded significant economic and political influence on a global scale.
+The Age of Enlightenment, a period of intellectual and cultural transformation in Europe, fostered new ideas about economics, politics, and society, influencing economic thought and policy.
