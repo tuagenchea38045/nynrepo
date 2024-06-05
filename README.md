@@ -1,1 +1,1 @@
-The Age of Enlightenment, a period of intellectual and cultural transformation in Europe, fostered new ideas about economics, politics, and society, influencing economic thought and policy.
+The Navigation Acts in Britain during the 18th century aimed to restrict colonial trade and maximize profits for British merchants and shipowners, shaping the economic relationship between Britain and its colonies.
