@@ -1,1 +1,1 @@
-European colonial powers, such as Spain, Portugal, England, France, and the Netherlands, competed for control of overseas territories and resources to bolster their economies.
+The rise of global trade networks in the 17th century facilitated the exchange of goods, ideas, and cultures between Europe, Asia, Africa, and the Americas, ushering in the era of globalization.
