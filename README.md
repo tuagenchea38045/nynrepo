@@ -1,1 +1,1 @@
-The practice of mercantilist policies, such as tariffs, trade monopolies, and subsidies, aimed to protect domestic industries and promote exports while limiting imports.
+The Industrial Revolution, which began in Britain in the late 18th century and spread to other parts of Europe and the world in the 19th century, transformed economies through mechanized production and urbanization.
