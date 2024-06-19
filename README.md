@@ -1,1 +1,1 @@
-The Treaty of Utrecht, signed in 1713, marked the end of the War of Spanish Succession and reshaped the global balance of power, leading to territorial realignments and trade agreements.
+The British East India Company (EIC), chartered in 1600, was granted a monopoly on English trade with Asia and played a key role in British imperialism and commerce in the 17th century.
