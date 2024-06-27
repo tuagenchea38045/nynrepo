@@ -1,1 +1,1 @@
-The Gold Rushes of the 19th century, including the California Gold Rush of 1848-1855 and the Australian Gold Rush of the 1850s, led to massive migrations, economic booms, and urban growth in affected regions.
+The rise of proto-industrialization in Europe during the 18th century laid the groundwork for the Industrial Revolution, with innovations in textile production, metallurgy, and agricultural technology.
