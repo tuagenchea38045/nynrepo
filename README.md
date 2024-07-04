@@ -1,1 +1,1 @@
-The rise of laissez-faire capitalism in the 19th century advocated for limited government intervention in the economy, free markets, and individual liberty, shaping economic policy and thought.
+The Industrial Revolution led to the rise of urbanization, with millions of people migrating from rural areas to cities in search of employment in factories and other industrial enterprises.
