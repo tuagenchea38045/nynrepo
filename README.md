@@ -1,1 +1,1 @@
-The rise of imperialism in the 19th century was driven by economic motives, including the search for raw materials, markets, and investment opportunities in overseas territories.
+The global economy of the 19th century was increasingly interconnected through trade networks, financial markets, and the exchange of goods, capital, and labor across borders.
