@@ -1,1 +1,1 @@
-The 17th century witnessed significant innovations in finance and commerce, including the development of bills of exchange, double-entry bookkeeping, and insurance contracts.
+The 17th century saw the rise of mercantilism, an economic theory that emphasized national wealth accumulation through exports and colonial expansion.
