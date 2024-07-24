@@ -1,1 +1,1 @@
-The rise of coffeehouses and salons in Europe during the 18th century provided spaces for intellectual exchange, networking, and business transactions, influencing economic and cultural trends.
+The Industrial Revolution led to the rise of factory-based production, the mechanization of agriculture, and the growth of urban populations, transforming social and economic structures worldwide.
