@@ -1,1 +1,1 @@
-The Industrial Revolution led to the rise of factory-based production, the mechanization of agriculture, and the growth of urban populations, transforming social and economic structures worldwide.
+The Atlantic slave trade flourished in the 17th century, with millions of Africans forcibly transported to the Americas to work on plantations, mines, and other labor-intensive industries.
