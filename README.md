@@ -1,1 +1,1 @@
-The rise of proto-industrialization in Europe during the 18th century laid the groundwork for the Industrial Revolution, with innovations in textile production, metallurgy, and agricultural technology.
+The rise of economic liberalism in the 18th century, championed by thinkers like Adam Smith, advocated for free markets, limited government intervention, and individual liberty, shaping modern economic theory and policy.
