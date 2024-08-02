@@ -1,1 +1,1 @@
-The United Kingdom emerged as the world's leading economic power in the 19th century, fueled by industrialization, technological innovation, and global trade networks.
+The triangular trade, a system of trade routes between Europe, Africa, and the Americas, played a central role in the global economy of the 18th century, facilitating the exchange of goods, labor, and resources.
